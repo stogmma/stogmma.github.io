@@ -1,1 +1,0 @@
-# stogmma.github.io
